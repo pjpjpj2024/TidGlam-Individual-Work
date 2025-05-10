@@ -1,1 +1,0 @@
-# TidGlam-Individual-Work
